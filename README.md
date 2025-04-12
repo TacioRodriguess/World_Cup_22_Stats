@@ -1,1 +1,1 @@
-Algumas Stats da Copa do Mundo de 2022
+Estatitiscas tecnicas sobre as seleções da Copa do Mundo de 2022
